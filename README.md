@@ -79,8 +79,8 @@ Passionate about **cybersecurity, backend development, and secure systems archit
 
 ## 📫 Contact Me
 
-📧 Email: darkaouialill@gmail.com  
-💼 LinkedIn: https://www.linkedin.com/in/ali-darkaoui  
+📧 Email: darkaouiali11@gmail.com  
+💼 LinkedIn: https://www.linkedin.com/in/ali-darkaoui-a4b0952b4/
 🐙 GitHub: https://github.com/alidrk508-jpg  
 
 ---
